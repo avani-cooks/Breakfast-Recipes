@@ -30,7 +30,7 @@ Hearty omelette with a lot of vegetables. Makes 3 large omelettes.
 
 ## Instructions
 ### Preparation
-1. Chop the onion and tomato into small cubes.
+1. Chop the onion and tomato into small cubes
 2. Finely chop the corriander, mint and chillies such that they are almost like flakes
 3. Slice mushrooms vertically
 4. In a pan add some olive oil and optionally chilli flakes and let it heat for a minute
