@@ -21,7 +21,7 @@ I have no idea what this is actually called but it's a thick egg dish with a yok
 
 ## Equipment
 - Cutting board and knife
-- A large cooking pot
+- A large cooking pot, mixing wooden spoon and fork
 
 ---
 
