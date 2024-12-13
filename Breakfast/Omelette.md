@@ -2,7 +2,7 @@
 
 Hearty omelette with a lot of vegetables. Makes 3 large omelettes.
 
-![Omelette](images/omelette.jpg)
+![Omelette](images/omelette.jpeg)
 
 ---
 
