@@ -34,7 +34,7 @@ Moong daal cheela served with tomato *chutney* and curd.
 1. Soak *moong daal* in water for 1-1.5 hours
 2. Blend the *daal* with salt and *hing* till you achieve a paste-like consistency, add water as needed
 3. Heat a pan and spread mustard oil on it
-4. Add the paste on the pan and sprinkle mustard oil around the edges and a few drops on top
+4. Spread the paste on the pan and sprinkle mustard oil around the edges and a few drops on top
 5. Flip the *cheela* when the edges start to brown
 6. Cook till brown and serve with chutney and curd
 
