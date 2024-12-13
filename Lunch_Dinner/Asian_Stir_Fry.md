@@ -38,9 +38,10 @@ Asian style stir fry vegetables served with corriander rice. Serves 3.
 ### Stir Fry
 1. Peel the garlic cloves and crush
 2. Chop onions, tomatoes, capsicum, tofu and mushrooms into medium sized cubes
-3. Add the vegetables to a pan with oilve oil and cook
-4. Season with salt, pepper, chilli flakes
-5. Add the sesame oil, honey and vinegar and mix
-6. Serve with rice
+3. Add crushed garlic to the pan and cook till transluscent
+4. Add the vegetables to the pan with oilve oil and cook
+5. Season with salt, pepper, chilli flakes
+6. Add the sesame oil, honey and vinegar and mix
+7. Serve with rice
 
 ---
